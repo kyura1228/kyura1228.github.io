@@ -1,1 +1,1 @@
-# kyura1228.github.com
+# kyura1228.github.io
